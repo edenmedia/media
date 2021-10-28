@@ -1,1 +1,1 @@
-Una variazione scura del tema classico By Alfa-PureITA
+Una variazione scura del tema classico

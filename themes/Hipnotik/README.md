@@ -1,1 +1,1 @@
-Un tema moderno By Alfa-PureITA
+Un tema moderno

@@ -1,1 +1,1 @@
-Un tema minimalista e elegante By Alfa-PureITA
+Un tema minimalista e elegante
