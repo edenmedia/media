@@ -1,0 +1,1 @@
+Un tema con colori vivaci
